@@ -1,4 +1,4 @@
-
+Get ahead in forsaken with advanced Scripts for forsaken, featuring no clip and no cooldown. Download now to dominate every match with ease and confidence, thanks to its advanced
 
 
 
